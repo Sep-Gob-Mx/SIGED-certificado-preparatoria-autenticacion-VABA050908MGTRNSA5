@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-VABA050908MGTRNSA5
+VABA050908MGTRNSA5
